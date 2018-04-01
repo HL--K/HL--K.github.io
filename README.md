@@ -1,2 +1,2 @@
-## Create Your Website under construction ##
+## Website under construction ##
 
